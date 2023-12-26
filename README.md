@@ -1,1 +1,1 @@
-these content not origin just for learning!
+This content is not originally just for learning!
